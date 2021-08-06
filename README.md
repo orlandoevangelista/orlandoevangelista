@@ -7,4 +7,4 @@ I know python ,c++, php,javascript👍
 🕹
 🎮
 💻and I like sibersicurity.
-And I know speak inglesh(intermediate-B2) and portugues(fluent).
+And I know speak inglesh(intermediate bath b1 b2) and portugues(fluent).
